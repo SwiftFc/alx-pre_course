@@ -1,1 +1,1 @@
-Let us go and learn
+no way
